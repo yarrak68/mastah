@@ -1,0 +1,2 @@
+# mastah
+Gunakan dengan bijak
